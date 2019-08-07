@@ -10,7 +10,7 @@ themselves by way of amends,
 to be a help and  
 ornament thereunto.   
 > 
-> -- <cite>Francis Bacon  </cite>
+> <cite>Francis Bacon  </cite>
 
 
 
